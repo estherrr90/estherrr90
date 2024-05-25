@@ -5,5 +5,4 @@ aqui voce encontrara meus projetos do curso da alura
 Esther mateus polonio
 
 
-![](https://tenor.com/pt-BR/view/nervous-dog-shy-wuba-gif-17729132519060511839)
-
+![](https://media1.tenor.com/m/9gqIF9ZtnF8AAAAd/nervous-dog-shy-wuba.gif)
